@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Al3x86
-- 👀 I’m interested in latest developments in IT and cybersecurity as a help desk tech.
+- 👀 I’m interested in latest developments in IT and cybersecurity.
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate.
 - 📫 reach me.
